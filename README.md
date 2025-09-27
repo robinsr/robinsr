@@ -15,4 +15,4 @@ I’ve previously contributed at scale with teams at **Amazon** and **REI**, del
 
 Currently open to mid-to-senior engineering roles and would love to connect.
 
-📬 [hi@ryanryan.net](mailto:hi@ryanryan.net) · [LinkedIn](https://www.linkedin.com/in/ryanbrobinson/) · [Portfolio](https://ryanryan.net)
+📬 [hi@ryanryan.net](mailto:hi@ryanryan.net) · [LinkedIn](https://www.linkedin.com/in/ryanbrobinson/) · [Portfolio](https://ryanryan.net/work)
